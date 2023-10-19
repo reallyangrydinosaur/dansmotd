@@ -1,2 +1,1 @@
-# dansmotd
-dansduels.com MOTD
+<a id="Dan's Duels">https://www.dansduels.com/</>
