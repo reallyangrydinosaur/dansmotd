@@ -2,4 +2,4 @@
 <a id="Halloween 2v2 Signup!">https://forms.gle/imPEnxoVjR6Tonm28</>
 
 
-![Flier](https://cdn.discordapp.com/attachments/701562947763437649/1162870911666491433/hallow.png?ex=653d82ee&is=652b0dee&hm=dad68de9f383c766362639e02ef9d1217b98a071fdaffa0426bb0c71fd8c0ff2&)
+![Flier](https://lh4.googleusercontent.com/bHPQHuKW-p1ig2jcHjVssRsYsUVFoLmZDFcJjvbq-6GcdFyxtnxrfkLLqgUct8zw2EtrEo9MhFquGFIaQf9EDnpTQtzwfPIlyyO7i8VgcfzWnXAQbTWtV1v1nTpShz4NyA=w1280)
