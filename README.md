@@ -1,0 +1,2 @@
+# dansmotd
+dansduels.com MOTD
