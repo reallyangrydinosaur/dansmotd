@@ -1,2 +1,2 @@
-<a id=".    \\-- Join Discord to Sign Up for the Event! --//  ">https://discord.com/invite/UaTxXZScaD</><a id="\\-- Donate To St. Jude's --//    .">https://streamlabscharity.com/@wmm-official/weaponheadas-maul-mash</>
-![](https://i.imgur.com/3yiReVO.jpeg)
+<a id="-- Click Here for Dan's Duels Discord --">https://discord.gg/s3QhWDPr</>
+ ![](https://i.imgur.com/YkhluWP.png)
